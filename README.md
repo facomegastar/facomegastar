@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @facomegastar
+- 👀 I’m interested in coding
+- 
